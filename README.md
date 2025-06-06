@@ -5,6 +5,9 @@
 <p>If you’re a crypto enthusiast looking to start trading or maximize your profits, using a <strong>BTCC referral code</strong> is a smart way to earn free crypto rewards. In 2025, BTCC offers <strong>new users</strong> up to <strong>11,000 USDT</strong> in bonuses, up to <strong>50% trading fee discounts</strong>, and other exclusive perks simply for using a <strong>promo code</strong> like <strong>BTCCBONUS</strong> during sign-up.</p>
 
 <p>In this guide, we’ll walk you through <strong>how to use the BTCC referral code</strong>, what types of <strong>BTCC trading rewards</strong> are available, and how to unlock the full value of this updated offer.</p>
+<p><a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">Sign up now to receive promotions and rewards from BTCC</a></p>
+
+
 <img src="https://images.mirror-media.xyz/publication-images/Nc6y3OxKjW0A_p-rYhSn7.png?height=960&amp;width=1920" decoding="async" data-nimg="fill" class="css-xah9so" style="position:absolute;top:0;left:0;bottom:0;right:0;box-sizing:border-box;padding:0;border:none;margin:auto;display:block;width:0;height:0;min-width:100%;max-width:100%;min-height:100%;max-height:100%">
 <h2>🔹 What Is the BTCC Referral Code?</h2>
 <p>The <strong>BTCC referral code</strong> (also known as a <strong>BTCC invite code</strong>, <strong>BTCC promo code</strong>, or <strong>BTCC discount code</strong>) is a special alphanumeric code that gives <strong>new users</strong> access to exclusive signup bonuses. When you create a new account using a verified code like <strong>BTCCBONUS</strong>, BTCC rewards you with various crypto incentives.</p>
